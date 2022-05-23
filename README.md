@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @francisrick
+- 👀 I’m interested in conhecimento
+- 🌱 I’m currently learning como ter conhecimento
+- 💞️ I’m looking to collaborate on com conhecimento
+- 📫 How to reach me dinheiro
